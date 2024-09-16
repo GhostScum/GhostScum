@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Freakbob
+- 👀 I’m interested in Getting Freaky
+- 🌱 I’m currently learning How to get freaky | 101
+- 💞️ I’m looking to collaborate on Sex.
+- 📫 How to reach me Look in the mirror with the lights off and say freaky freaky freaky.
+- 😄 Pronouns: Kamala/Sigma
+- ⚡ Fun fact: :tcaf nuF ⚡ -
